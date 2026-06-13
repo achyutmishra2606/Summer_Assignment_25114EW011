@@ -1,1 +1,2 @@
-Those were the 4 question given on day 1
+These are the question that are given as per holiday homework basic yet impotant..
+
